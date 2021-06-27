@@ -1,1 +1,1 @@
-# gama-na-github
+Estou achando o curso muito legal!!!
